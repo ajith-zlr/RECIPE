@@ -1,3 +1,3 @@
 # RECIPE
 
-super dice
+super dices
