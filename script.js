@@ -1,3 +1,3 @@
 # RECIPE
 
-super dicessssssssssssss
+super dicesssssssssssssss
