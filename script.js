@@ -1,3 +1,3 @@
 # RECIPE
 
-super dicessssssssssssssss
+super dicesssssssssssssssss
